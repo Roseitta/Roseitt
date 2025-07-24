@@ -1,2 +1,2 @@
-# Roseitt
+# Roseitta
 Women’s Store
